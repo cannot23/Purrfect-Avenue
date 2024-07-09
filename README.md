@@ -12,7 +12,6 @@ Rosas, Kenneth H.
 
 Submitted to: 
 Prof. Iluminada Vivien R. Domingo, DBA 
-Faculty Adviser 
 
 Login Credentials
 
